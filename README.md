@@ -1,1 +1,1 @@
-# rlathgml144.github.io-Left&Right&Sohee
+# ID.github.io-Repository-name
